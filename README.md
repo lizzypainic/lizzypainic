@@ -11,5 +11,4 @@ Meu nome é Laiza Paini 🌻
 laiza.paini@escola.pr.gov.br
 
 
-
-![](https://tenor.com/mJKSRIU1fYb.gif)
+ ![](https://media1.tenor.com/m/q2SNrE0x2Z0AAAAC/gif-gatinho.gif)
